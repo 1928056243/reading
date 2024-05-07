@@ -60,7 +60,7 @@ This software may modify and update this Privacy Policy from time to time withou
 
 CONTACT
 
-If you have any questions or concerns regarding this Privacy Policy or the manner in which we or our service providers treat your personal information, would like to exercise your choices, or would like us to update information we have about you or your preferences, please contact us at  shenzhenyiyanpro@163.com.
+If you have any questions or concerns regarding this Privacy Policy or the manner in which we or our service providers treat your personal information, would like to exercise your choices, or would like us to update information we have about you or your preferences, please contact us at  jinchanwangpro@gmail.com.
 
  
 
